@@ -14,3 +14,4 @@ Doot (Wawenoc), Espíritus del tiempo
 Echo (también conocido como Crazy Horse, Ronin ) (mitad Cheyenne , mitad Latina , miembro de New Avengers )
 añado en branch primero
 Insisto en añadir lineas
+Dionisio participa
