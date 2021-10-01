@@ -15,3 +15,5 @@ Echo (también conocido como Crazy Horse, Ronin ) (mitad Cheyenne , mitad Latina
 añado en branch primero
 Insisto en añadir lineas
 Dionisio participa
+
+Preparo tio de dioses
